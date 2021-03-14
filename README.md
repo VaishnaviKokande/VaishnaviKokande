@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @VaishnaviKokande
+- 👋 Hi, I’m Avi.1612
 - 👀 I’m interested in COMPUTERS
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on games and apps
